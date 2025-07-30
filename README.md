@@ -1,6 +1,6 @@
 # 1977
 Things that happened in 1977
-
+- Apotemnophilia described in a 1977 article by psychologists Gregg Furth and John Money.
 ## January
 ## February
 ## March
