@@ -14,6 +14,8 @@ Things that happened in 1977
 ### 7
 - The Spy Who Loved Me premieres 
 ## August
+### 15
+- The wow signal
 ## September
 ## October
 ## November
